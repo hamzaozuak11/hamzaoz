@@ -1,0 +1,2 @@
+# hamzaoz
+Mavi tik
